@@ -1,1 +1,1 @@
-# save_nature
+Welcome to the Save Nature project! This website is dedicated to promoting environmental awareness, conservation efforts, and sustainable practices to help protect and preserve our planet. Save Nature aims to provide resources, tools, and a community to inspire individuals and organizations to take actionable steps towards a greener future
